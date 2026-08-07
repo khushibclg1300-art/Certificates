@@ -11,7 +11,7 @@ Below is a comprehensive list of my internship experiences, academic honors, and
 
 ### 🏆 Extracurricular & Honours
 * **Infosys Scholarship** — [View Certificate](<Infosys scolarship certificate.pdf>)
-* **Scholar's Day** — [View Certificate](<Scholar's Day certificate.jpg>)
-* **Pehchaan** — [View Certificate](<Pehchaan certificate.jpg>)
+* **Scholar's Day** — [View Certificate](<Scholar's Day certificate.jpeg>)
+* **Pehchaan** — [View Certificate](<Pehchaan certificate.jpeg>)
 * **Be10x** — [View Certificate](<Be10x Certificate.pdf>)
-* **SDI** — [View Certificate](<SDI Certificate.jpg>)
+* **SDI** — [View Certificate](<SDI Certificate.jpeg>)
