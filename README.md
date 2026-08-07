@@ -4,7 +4,7 @@ Below is a comprehensive list of my internship experiences, academic honors, and
 
 ### 💼 Internship & Experience Certificates
 * **Anveshan Experience** — [View Certificate](<Anveshan Certificate.pdf>)
-* **Industry 4.0** — [View Certificate](<Industry 4.0 certificate.pdf>)
+* **Industry 4.0** — [View Certificate](<Industry 4.0 certificate .pdf>)
 * **ISL Experience** — [View Certificate](<ISL certificate.pdf>)
 
 ---
