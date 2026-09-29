@@ -10,7 +10,7 @@ Below is a comprehensive list of my internship experiences, academic honors, and
 ---
 
 ### 🏆 Extracurricular & Honours
-* **Clean Energy Poster 2nd Prize** -- [View Certificate](<2nd prize.png>)
+* **Clean Energy Poster 2nd Prize** -- [View Certificate](<2nd prize.jpeg>)
 * **Infosys Scholarship** — [View Certificate](<Infosys scolarship certificate.pdf>)
 * **Scholar's Day** — [View Certificate](<Scholar's Day certificate.jpeg>)
 * **Pehchaan** — [View Certificate](<Pehchaan certificate.jpeg>)
